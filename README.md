@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...git hub
 - 📫 How to reach me ...never
 - 😄 Pronouns: ...no
-- ⚡ Fun fact: ...i am not adult 😃
+- ⚡ Fun fact: ...NOT YOUR CUP OF TEA ☕ 
 
 <!---
 amankarmakar18/amankarmakar18 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
